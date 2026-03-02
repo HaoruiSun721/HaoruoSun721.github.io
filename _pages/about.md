@@ -21,6 +21,9 @@ Publications
 
 Honors and Awards
 ------
-1. 
+1. 2019–2020 Recipient of the **National Scholarship**; Named a University Outstanding Student
+2. 2020–2021 Recipient of the **National Scholarship** and the Hisense Scholarship; Named a University Outstanding Student
+3. 2021–2022 Recipient of the First-Class University Scholarship; Named a University Outstanding Student
+4. 2022–2023 Named an Outstanding Graduate of Sichuan Province and an Outstanding Graduate of the University
 
 
